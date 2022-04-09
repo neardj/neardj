@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @neardj
+- 👀 I’m interested in informatics,3d print,  photo, video, drone and sports.
+- 📫 How to reach me: info@luigiz.eu
